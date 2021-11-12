@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-We make software for tomorrow by breaking the assumptions of today. 
+We make software for tomorrow by breaking the assumptions of today. Join us.
